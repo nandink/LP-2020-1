@@ -1,3 +1,5 @@
+**edit del github: a esta tarea le faltó mucho 
+
 Fernanda Catalina Cerda Rojas
 Rol USM: 201804567-5
 
